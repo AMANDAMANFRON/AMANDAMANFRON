@@ -1,0 +1,8 @@
+- olá, eu sou Amanda Manfron Dalzotto
+- eu gosto de ler, desenhar, escutar musíca e assistir séries
+- sou potterhead 
+- gostaria de fazer medicina, mas ainda não tenho certeza
+- moro em Ivaí-PR
+- fasso aniversário dia 06/09
+- atualmente tenho 14 anos 
+- estudo no colégio Arthur da Costa e Silva
